@@ -1,2 +1,2 @@
 # 最新网址
-# https://wangyiwenku.xyz
+# https://wangyiwenku.org
